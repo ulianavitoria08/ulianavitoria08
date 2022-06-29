@@ -1,0 +1,2 @@
+- 👋 oi meu nome e Uliana
+- 👀 estou aprendendo a progamar
